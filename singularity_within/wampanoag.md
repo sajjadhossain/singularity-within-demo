@@ -1,4 +1,3 @@
-# Singularity Within (demo)
 ## Wampanoag
 ### North East America, c. 1421 A.D.E.S.
 
