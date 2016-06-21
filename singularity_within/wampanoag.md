@@ -52,7 +52,7 @@ The being scratched a handful of letters in to the dirt between them, laid the s
 
 Was that... its' name?
 
-The rustling in the bushes grew closer. Andyare wiped the message away with her feet, grabbed her shield and prepared herself for the interrogation that will most definately follow.
+The rustling in the bushes grew closer. Andyare wiped the message away with her foot, grabbed her shield and prepared herself for the interrogation that will most definately follow.
 
 * * *
 * * * 
