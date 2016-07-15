@@ -10,11 +10,11 @@ In its' usual tradition, the city of Detroit will echo with fireworks for a 10-k
 
 "Good evening." He spoke, breaking cheers.
 
-"I would like to take a moment and extend my gratitude for all your support. We're all aware of the changes brought forth by the last few decades, but those eggs needed to be cracked..." He smiled and paused for the arc in their laugh to peak. Mayor Loppel was a charismatic rightist politician to say the least. Regardless of his partisanship, the very fiber of his being swayed the crowds' reverence.
+"I would like to take a moment and extend my gratitude for all your support. We're all aware of the changes brought forth by the last few decades, but those eggs we cracked, made us a pretty sweet omlette, wouldn't you say?" He smiled and paused for the arc in their laugh to peak. Mayor Loppel was by far the most charismatic rightist politician on the news. Regardless of his partisanship, the very fiber of his being swayed the crowds' reverence.
 
 "In the face of adversity and war *we* were resilient. When the responsibility to rebuild our nation was staring at us head on, *we* welcomed the challenge. That's why tonight, here at the Bard memorial in downtown Detroit, *we* remain standing on the grounds that revolutionized transportation eight-hundred and twenty-five years ago. That's why today, Motor City retains frontier-ship of the automative and space-faring industries." The crowd roars. Socialites and non-conformists alike seemed to be awestruck by the light of justice, silhouetting this hero.
 
-He smiles and gestures order. "So, let us awe at a sky of bursting fireworks, celebrate our independence, and shine feeble in light of our future. Happy birthday America." 
+He smiles and gestures order. "Let us awe at a sky of bursting fireworks, celebrate our independence, and shine feeble in light of our future." 
 
 With those last words Mayor Loppel took a seat with the rest of his cabinet members. A long whistle, then a tiny pop.
  
